@@ -1,1 +1,1 @@
-Love is beautiful.
+Love is beautiful'
